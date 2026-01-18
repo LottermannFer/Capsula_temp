@@ -1,0 +1,1 @@
+Para a minha noiva, que quando conversamos a primeira vez eu soube na hora que você é a mulher da minha vida para sempre, e quando te pedi em noivado eu soube mais ainda que eu vou passar a minha vida todinha ao seu lado grudadinho ❤️❤️
